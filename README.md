@@ -10,4 +10,9 @@ EU TBM HAHAHHAHA
 consegui copiar aeee 
 oi
 
+
 hi
+
+se Deus quiser vai dar certo agr
+eu tambem, mas sei la oq ta dando errado!
+
